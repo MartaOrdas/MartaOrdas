@@ -1,4 +1,4 @@
-### This profile is in progress, thank you for your patience ✨
+### This profile is in progress, sorry for the inconvenience. ✨
 
 <!--
 **MartaOrdas/MartaOrdas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
